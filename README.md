@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @NefariousP
-- 📫 How to reach me
-  Socials:
+- 📫 Socials:
     Twitch - https://www.twitch.tv/nefariousp
     Twitter - https://twitter.com/nefpolitics
     Instagram - https://www.instagram.com/lorenzodf320/
